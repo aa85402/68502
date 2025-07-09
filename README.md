@@ -21,4 +21,4 @@ SEO优化方面，我们在每一篇影片详情页中合理布局关键词，�
 
 收藏本站，让“日本AV免费”不再是奢望！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/68502 ）</span>
